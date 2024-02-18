@@ -23,4 +23,4 @@
 Make any Gun in BattleBit Remastered No Recoil with this software. This BattleBit No Recoil Software is the safest and most reliable software which is compatible with all Mouse Types and Games.
 
 # Get Access by checking below
-[https://vimeo.com/911518220](https://vimeo.com/914103924)https://vimeo.com/914103924
+https://vimeo.com/914103924
