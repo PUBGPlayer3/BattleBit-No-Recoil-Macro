@@ -19,6 +19,12 @@
   
 </h1>
 
+<br>
+<h2>No Recoil Software New Version 1.4 Intro  👉 https://youtu.be/3i3SNICVz7o 👈 Must Watch</h2>
+<h4>How to get software 👉 https://youtu.be/66RGd2Fa-IE </h4>
+<h4>Why Undetected 👉 https://youtu.be/b96gAJefihI </h4>
+<br>
+
 # BattleBit-No-Recoil-Macro
 Make any Gun in BattleBit Remastered No Recoil with this software. This BattleBit No Recoil Software is the safest and most reliable software which is compatible with all Mouse Types and Games.
 
